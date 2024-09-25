@@ -2,7 +2,8 @@
 - 👀 I’m interested in exploring AI and many more new technologies.
 - 🌱 I’m currently learning AI deeply .
 - 💞️ I’m looking to collaborate on huge projects
-- 📫 How to reach me saxenakarishma48@gmail.com,https://www.linkedin.com/in/karishma-saxena-40a39b273/
+- 📫 How to reach me saxenakarishma48@gmail.com
+- https://www.linkedin.com/in/karishma-saxena-40a39b273/
 - 😄 Pronouns: believe what u dreamt to be.
 - ⚡ Fun fact: hahahaahaahh 
 
